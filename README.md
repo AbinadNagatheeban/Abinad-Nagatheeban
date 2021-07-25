@@ -1,2 +1,2 @@
 # Abinad-Nagatheeban
-Ye boi Abinad poppin' in these streets
+Welcome to my GitHub profile!
